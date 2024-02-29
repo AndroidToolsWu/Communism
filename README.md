@@ -128,6 +128,9 @@ The cognitive elevation of all humanity will liberate human thoughts and creativ
 
 Reference
 [1]Daron Acemoglu, Pascual Restrepo. May 2019. Artificial Intelligence,Automation, and Work. University of Chicago Press (p. 197 – 236)
+
 [2]H.D ZHU, MICHAEL JONES. 2014. Huawei: An Exemplar for Organizational Change in a Modern Environment.  Journal of information technology education 3(1)
+
 [3]Friedrich Engels. 1847. Principles Of Communism.
+
 [4]Friedrich Engels. 1847. Draft of a Communist Confession of  Faith.       https://www.marxists.org/archive/marx/works/1847/06/09.htm
