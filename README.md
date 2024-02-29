@@ -127,6 +127,7 @@ The cognitive elevation of all humanity will liberate human thoughts and creativ
 
 
 Reference
+
 [1]Daron Acemoglu, Pascual Restrepo. May 2019. Artificial Intelligence,Automation, and Work. University of Chicago Press (p. 197 – 236)
 
 [2]H.D ZHU, MICHAEL JONES. 2014. Huawei: An Exemplar for Organizational Change in a Modern Environment.  Journal of information technology education 3(1)
